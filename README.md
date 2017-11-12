@@ -1,1 +1,0 @@
-# free-sticers.githud.io
